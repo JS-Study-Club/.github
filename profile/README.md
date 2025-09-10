@@ -7,7 +7,6 @@
 [이예지](https://github.com/leeyeji0306)
 [조정모](https://github.com/Rimfo4)
 디자인과
-[최수인](https://www.instagram.com/xo0o0o.ix/)
 [최예린](https://www.instagram.com/rin92188/)
 
 15기
