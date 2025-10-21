@@ -8,6 +8,7 @@
 [조정모](https://github.com/Rimfo4)
 디자인과
 [최예린](https://www.instagram.com/rin92188/)
+[곽연서](https://www.instagram.com/yu2_nn/)
 
 15기
 개발과
@@ -17,6 +18,7 @@
 [이서영](https://github.com/LEESEOYOUNG0107)
 디자인과
 [김설애](https://www.instagram.com/gimseolae1/)
+[이서현](https://www.instagram.com/zush.ol/)
 
 14기
 개발과
